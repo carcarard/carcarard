@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @carcarard
+- 👀 I’m interested in rocketry and aerospace industry
+- 💞️ I’m looking to collaborate on rocketry projects
+- 📫 @carcara_rd
+- ⚡ Fun fact: I'm the first rocketry team from my state.
